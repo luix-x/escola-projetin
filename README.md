@@ -1,2 +1,2 @@
-# escola-projetin
-projeto do alura pro cocelio aiiiin zé da manga
+#projeto alura #luiz-miguel
+Projeto Alura BeCreative
